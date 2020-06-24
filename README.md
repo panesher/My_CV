@@ -1,1 +1,1 @@
-My CV Ru version
+My CV Russian, English versions
